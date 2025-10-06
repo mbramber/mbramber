@@ -3,7 +3,7 @@
 - 🌱 I have a cactus
 - ❤️ Being dominated
 - 😄 Is the earth round?
-- ⚡ I like Lightning 
+- ⚡ I like Thighs
 
 <!---
 mbramber/mbramber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
