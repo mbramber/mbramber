@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @mbramber
 - 👀 F1 and racing fan
-- 🌱 I have a cactus
-- 💞️ I'm single like a pringle 
+- 🌱 I have a cactus 
 - 😄 Is the earth round?
 - ⚡ I like Lightning 
 
